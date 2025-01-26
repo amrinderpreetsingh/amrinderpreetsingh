@@ -1,4 +1,4 @@
-![Alt text](https://github.com/amrinderpreetsingh/amrinderpreetsingh/blob/main/amrinder.png)
+![Alt text](https://github.com/amrinderpreetsingh/amrinderpreetsingh/blob/main/amrindersingh.png)
 
 Hey, I am Amrinderpreet Singh, a Software Engineer with 3 Years on Industry Experience. 
 
